@@ -1,0 +1,2 @@
+# proyekshinze
+Latian sendiri ini
